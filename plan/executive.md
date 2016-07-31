@@ -1,6 +1,11 @@
 # Executive Summary
-## The Conept
+
+## The Concept
+
 ## Background
+
 ## The Company
+
 ## The Market
+
 ## Competitive Position
